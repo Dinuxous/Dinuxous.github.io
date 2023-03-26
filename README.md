@@ -1,1 +1,1 @@
-# Diuxious.github.io
+# Dinuxous.github.io
